@@ -1,3 +1,2 @@
 # CV_Kun_Liu
-My Resume.
-update as changes made
+My resume 21.01.2017
